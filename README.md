@@ -28,3 +28,8 @@ give sweater pack command
 give og pack command 
 
 change username only for donators and admins 
+
+patatogrpaphics idk wich button because i've forgotten it since i didnt do an update for it in along time
+
+fps booster alo forgot 
+
